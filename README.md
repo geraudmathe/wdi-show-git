@@ -1,3 +1,4 @@
 Hey gerry how r u ?
 
-why you don't answer ?
+
+not bad dude , just began a new class
